@@ -1,7 +1,7 @@
 ## Bem-vindo(a) ao perfil do Ronizero 😁
 Aprendendo a codificar coisinhas, ble ble blah 🤣
 
-
+### Aprendendo essas coisas mano, to aprendendo do zero veinho do céu, real gangstar shit!! ///  bgl ta foda mané 🤡😊
  <div>
    <a href="https://github.com/ronizero">
    <img height="180em" src="https://github-readme-stats.vercel.app/api?username=ronizero&show_icons=true&theme=dracula&include_all_commits=true&count_private=true"/>
