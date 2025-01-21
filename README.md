@@ -16,7 +16,7 @@ Aprendendo a codificar coisinhas, ble ble blah 🤣
  
 <br>
  
-### Aprendendo essas coisas mano, to aprendendo do zero veinho do céu, real gangstar shit!! ///  bgl ta foda mané 🤡😊
+###   bgl ta foda mané 🤡😊
  
 <div> 
   
