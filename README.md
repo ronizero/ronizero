@@ -29,3 +29,13 @@ Aprendendo a codificar coisinhas, ble ble blah 🤣
 
 
 </div>
+<ul> 
+ <li> NÃO PRECISA SER PERFEITO 🤡💕
+</li>
+</ul>
+
+<div> <a> <img src=https://i.pinimg.com/originals/f3/82/03/f38203d31022a4ab6660088332c8885d.gif> </a> 
+ <p> SEJA APENAS O PATINHO DANÇANTE </p>
+</div>
+
+
